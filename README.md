@@ -6,3 +6,4 @@
 ![Captura de tela de 2025-04-14 19-37-53](https://github.com/user-attachments/assets/6f172d31-019c-4f19-9011-c1e196da3cfd)
 ![Captura de tela de 2025-04-14 19-37-35](https://github.com/user-attachments/assets/cdbb869b-07bc-41a5-92e2-3401f5c44b46)
 ![Captura de tela de 2025-04-14 19-21-51](https://github.com/user-attachments/assets/f696bb2a-606a-4a8c-9982-e4eddbad5cbe)
+.
